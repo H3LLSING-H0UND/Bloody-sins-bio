@@ -14,11 +14,18 @@ i'm still a person so don't treat me like an object.
 
 <img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/58f535fe-9a23-4a85-878c-c65fbb6ec716" />
 <img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/ec7696ac-279f-4f4e-b4c0-dc14cf846526" />
+
+
+
+
 <img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/ec7696ac-279f-4f4e-b4c0-dc14cf846526" />
 
 
 <img width="150" height="20" alt="yum" src="https://github.com/user-attachments/assets/16fc50d6-c08f-4e57-b202-eba0ede0f9f4" />
 <img width="150" height="20" alt="aromanticpride" src="https://github.com/user-attachments/assets/d5c81175-6f1d-406c-9456-15609c6642c6" />
+
+
+
 
 
 <img width="150" height="20" alt="agenderpride" src="https://github.com/user-attachments/assets/53bac88a-3cf8-40c9-be62-b13f8b49a37f" />
