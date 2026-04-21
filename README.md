@@ -18,7 +18,8 @@
                                  
 <p align="center">                                 
 HEYA I'M SAI- SINS - NAMELESS - OR PSYCH ONLINE
-
+<p align="center">   
+·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
 <p align="center">
 I go by He/It/Pup, any tbh i just prefer masc ones, idm fem pronouns 
 
