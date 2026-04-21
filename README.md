@@ -10,7 +10,7 @@
                      I go by He/It/Pup, any tbh i just prefer masc ones, idm fem pronouns 
 
             
-             I'm a pround misanthrope :3 and uhh alterhuman [Labels include:fictkin.therian.otherhearted.nonhuman]
+             I'm a pround misanthrope :3 and uhh alterhuman [Labels include:fictkin.therian.nonhuman]
            
 
 
