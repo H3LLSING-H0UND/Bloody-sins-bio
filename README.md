@@ -46,3 +46,10 @@
 <img width="150" height="20" alt="579273039-d3bc210a-9e20-438c-aa86-60ca087ce0bf" src="https://github.com/user-attachments/assets/e01a8ea2-28e3-4bfe-b5fd-7f9712b73415" />
 
 <img width="88" height="31" alt="sticker" src="https://github.com/user-attachments/assets/a30f88f8-2526-4fd8-b3d6-0e09dc98797d" />
+
+
+<img width="150" height="20" alt="dog1" src="https://github.com/user-attachments/assets/780dae84-c72a-408d-b20e-150737e6e6fb" />
+
+
+<img width="500" height="33" alt="paws" src="https://github.com/user-attachments/assets/da2ca979-6dbd-48e0-85b5-d7d2cb51ceba" />
+
