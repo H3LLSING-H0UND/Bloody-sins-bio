@@ -40,5 +40,11 @@
 <img width="540" height="200" alt="Post by @blog-de-segunda · 10 images" src="https://github.com/user-attachments/assets/6b4eaf91-b582-4915-81b2-c04ca7ffaaac" />
 
 
+
+
+
+
+
 <img width="60" height="18" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f66323566306e2e676966" src="https://github.com/user-attachments/assets/1093bd53-180b-4cf7-a3bc-df1a0b26cc20" />
+<img width="150" height="20" alt="579273039-d3bc210a-9e20-438c-aa86-60ca087ce0bf" src="https://github.com/user-attachments/assets/e01a8ea2-28e3-4bfe-b5fd-7f9712b73415" />
 
