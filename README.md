@@ -4,11 +4,11 @@
 # HIYA :P-SIN'S BIO-
 
 
-
+<p align="center">
 <img width="1232" height="15" alt="typewriter (1)" src="https://github.com/user-attachments/assets/113e5259-62f7-42d9-8f00-0f258edd2348" />
 
 
-
+<p align="center">
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&cover_image=true&theme=default&show_offline=true&background_color=58525b&interchange=true&profanity=false&bar_color=000b61&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&redirect=true)
  
                               
@@ -16,14 +16,14 @@
                                  
                                  
                                  
-                                 
-                                 HEYA I'M SAI- SINS - NAMELESS - OR PSYCH ONLINE
+<p align="center">                                 
+HEYA I'M SAI- SINS - NAMELESS - OR PSYCH ONLINE
 
+<p align="center">
+I go by He/It/Pup, any tbh i just prefer masc ones, idm fem pronouns 
 
-                     I go by He/It/Pup, any tbh i just prefer masc ones, idm fem pronouns 
-
-            
-             I'm a pround misanthrope :3 and uhh alterhuman [Labels include:fictkin.therian.nonhuman]
+ <p align="center">           
+I'm a pround misanthrope :3 and uhh alterhuman [Labels include:fictkin.therian.nonhuman]
            
 
 
