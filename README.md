@@ -10,5 +10,5 @@ i'm still a person so don't treat me like an object.
  Er er..thinks..My sexuality fkunctuates but its mostly MLM / Aromanticflux
  feel free to int anytime u see me!
 
- -WORKING PROGRESS GNA MAKE IT SHINY LTR-
+
 <img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/58f535fe-9a23-4a85-878c-c65fbb6ec716" />
