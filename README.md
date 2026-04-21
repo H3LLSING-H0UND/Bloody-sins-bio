@@ -12,3 +12,4 @@ i'm still a person so don't treat me like an object.
 
 
 <img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/58f535fe-9a23-4a85-878c-c65fbb6ec716" />
+<img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/ec7696ac-279f-4f4e-b4c0-dc14cf846526" />
