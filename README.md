@@ -43,7 +43,7 @@
                                  
                                  
 <p align="center">                                 
-HEYA I'M SAI- SINS - NAMELESS - OR PSYCH ONLINE
+HEYA I'M SAI- SINS - NAMELESS - OR PSYCH ONLINE 16-17
 <p align="center">   
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
 <p align="center">
@@ -52,6 +52,10 @@ I go by He/It/Pup, any tbh i just prefer masc ones, idm fem pronouns
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
 <p align="center">           
 I'm a pround misanthrope :3 and uhh alterhuman [Labels include:fictkin.therian.nonhuman]
+    <p align="center">  
+Scotland forever! yes im scottish/african yum
+<p align="center">  
+i make repository or pony skin comms mostly[art comms sometimes] js whisp if interested!
 <p align="center">
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇   
 
