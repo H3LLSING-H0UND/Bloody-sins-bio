@@ -1,7 +1,7 @@
 
 
 
-# HIYA :P-SIN'S BIO-
+# HIYA 
 <p align="center">
 <img width="96" height="20" alt="download" src="https://github.com/user-attachments/assets/4b4ea2cd-1912-49bd-a908-3b1db9fb0017" />
 <svg xmlns="http://www.w3.org/2000/svg" width="96.2" height="20">
@@ -91,8 +91,6 @@ i make repository or pony skin comms mostly[art comms sometimes] js whisp if int
 
 <img width="88" height="31" alt="sticker" src="https://github.com/user-attachments/assets/a30f88f8-2526-4fd8-b3d6-0e09dc98797d" />
 
-
-<img width="150" height="20" alt="dog1" src="https://github.com/user-attachments/assets/780dae84-c72a-408d-b20e-150737e6e6fb" />
 
 
   <img width="500" height="33" alt="paws" src="https://github.com/user-attachments/assets/da2ca979-6dbd-48e0-85b5-d7d2cb51ceba" /> 
