@@ -1,7 +1,7 @@
 
 
 
-# HIYA 
+# HIYA [wip, needs update]
 <p align="center">
 <img width="96" height="20" alt="download" src="https://github.com/user-attachments/assets/4b4ea2cd-1912-49bd-a908-3b1db9fb0017" />
 <svg xmlns="http://www.w3.org/2000/svg" width="96.2" height="20">
