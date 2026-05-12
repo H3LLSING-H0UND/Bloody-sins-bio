@@ -42,14 +42,17 @@
                                  
                                  
                                  
-<p align="center">                                 
-HEYA I'M SAI- SINS - ORGANZ - ONLINE 16-17
+<p align="center">
+    Ponytown:
+HEYA I'M SAI- SINS - ORGANZ
+    <p align="center">
+    C+h freely unless on dni - Do not copy my ponies- you'll get blocked, js ask i'll most likely give ya 1
 <p align="center">   
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
 <p align="center">
 𝑖 𝑔𝑜 𝑏𝑦 𝐻𝑒^𝐼𝑡 𝑜𝑟 𝑎𝑛𝑦 𝑡𝑏ℎ
     <p align="center">
-    C+h freely unless on dni
+   
 <p align="center">
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
 <p align="center">           
