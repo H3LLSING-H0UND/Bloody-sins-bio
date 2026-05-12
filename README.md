@@ -48,50 +48,19 @@ HEYA I'M SAI- SINS - ORGANZ - ONLINE 16-17
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
 <p align="center">
 𝑖 𝑔𝑜 𝑏𝑦 𝐻𝑒^𝐼𝑡 𝑜𝑟 𝑎𝑛𝑦 𝑡𝑏ℎ
+    <p align="center">
+    C+h freely unless on dni
 <p align="center">
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
 <p align="center">           
 𝑙𝑜𝑐𝑎𝑙 𝑚𝑖𝑠𝑎𝑛𝑡ℎ𝑟𝑜𝑝𝑒
     <p align="center">  
-Scotland forever! yes im 𝑠𝑐𝑜𝑡𝑡𝑖𝑠ℎ*𝑎𝑓𝑟𝑖𝑐𝑎𝑛.
+Alwas active on discord
 <p align="center">  
-i make repository or pony skin comms mostly[art comms sometimes] js whisp if interested!
+i make pony skin comms/free ponies mostly[art comms sometimes] js whisp if interested!
 <p align="center">
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇   
 
 
 
 
-
-<p align="center">
-<img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/58f535fe-9a23-4a85-878c-c65fbb6ec716" />
-<img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/ec7696ac-279f-4f4e-b4c0-dc14cf846526" />
-
-
-
-
-<img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/ec7696ac-279f-4f4e-b4c0-dc14cf846526" />
-
-
-<img width="150" height="20" alt="yum" src="https://github.com/user-attachments/assets/16fc50d6-c08f-4e57-b202-eba0ede0f9f4" />
-<img width="150" height="20" alt="aromanticpride" src="https://github.com/user-attachments/assets/d5c81175-6f1d-406c-9456-15609c6642c6" />
-
-
-
-
-
-<img width="150" height="20" alt="agenderpride" src="https://github.com/user-attachments/assets/53bac88a-3cf8-40c9-be62-b13f8b49a37f" />
-<img width="150" height="20" alt="men_lovers" src="https://github.com/user-attachments/assets/33bab3ab-ab46-4e70-89c6-3d4d159aa025" />
-<img width="150" height="20" alt="gay_as_f" src="https://github.com/user-attachments/assets/f78b375d-d272-43f1-a875-d9cca34a96c9" />
-<img width="150" height="20" alt="men_lovers" src="https://github.com/user-attachments/assets/caf266d6-d85d-4637-a630-138e3726cb83" />
-
-
-<img width="60" height="18" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f66323566306e2e676966" src="https://github.com/user-attachments/assets/1093bd53-180b-4cf7-a3bc-df1a0b26cc20" />
-<img width="150" height="20" alt="579273039-d3bc210a-9e20-438c-aa86-60ca087ce0bf" src="https://github.com/user-attachments/assets/e01a8ea2-28e3-4bfe-b5fd-7f9712b73415" />
-
-<img width="88" height="31" alt="sticker" src="https://github.com/user-attachments/assets/a30f88f8-2526-4fd8-b3d6-0e09dc98797d" />
-
-
-
-  <img width="500" height="33" alt="paws" src="https://github.com/user-attachments/assets/da2ca979-6dbd-48e0-85b5-d7d2cb51ceba" /> 
-       ⸄࿆࿆⸅ྃ⸄࿆⸅⸄῁̟࿆⸅ྃ⸄῁࿆⸅⸄῁̟࿆⸅ྃ⸄῁࿆⸅⸄῁̟࿆⸅ྃ⸄῁࿆⸅⸄῁̟࿆ ⸅𓊆†𓊇⸄῁࿆⸅⸄῁̟࿆⸅ྃ⸄῁࿆⸅⸄῁̟࿆⸅⸄῁࿆⸅⸄῁̟࿆⸅ྃ⸄῁࿆⸅⸄῁̟࿆⸄࿆࿆⸅ྃ⸄࿆⸅⸄῁̟࿆⸅ྃ⸄῁࿆⸅⸄῁̟࿆⸅ྃ⸄῁࿆⸅⸄῁̟࿆⸅ྃ⸄῁࿆⸅⸄῁̟࿆ ⸅𓊆†𓊇⸄
